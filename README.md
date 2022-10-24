@@ -1,4 +1,6 @@
-I'm Sayako from the Department of Abstract Nonsense of Zelenskgradskiy Politekhnicheskiy Institute (don't try to find it; it's fictional...).
+I'm Sayako from the Department of Abstract Nonsense of Zelenskgradskiy Politekhnicheskiy Institute.
+
+J'ai été élu par et représente, puisque la 10e année de notre démocratie, la conscription de la Parc universitaire et la 10e arrondissement du Quartier économique particulaire de Pékin pour fonctionner comme une membre du Parlement federale de la République Yuyencienne, une état signé de l'Union des républiques démocratiques de l'ancienne Chine communiste. 我是民主十年屆前共產中國民主共和國聯盟成員幽燕共和國北京經濟特區第十及大學城選區聯邦立法委員。
 
 Discord: Fourier-Deligne Transgirl#3264 (I’m the trans girl🏳️‍⚧️👩‍🏫 used in Laumon’s proof✍️🏋️‍♀️➡️🌾  of the Riemann hypothesis0️⃣🪅 for finite fields❌∞!)
 
